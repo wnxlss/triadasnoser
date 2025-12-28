@@ -1,0 +1,2 @@
+# triadasnoser
+lychhiy snos sng
